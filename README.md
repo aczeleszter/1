@@ -1,0 +1,1 @@
+Hosok kapuja
